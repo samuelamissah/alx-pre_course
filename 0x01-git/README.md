@@ -1,1 +1,1 @@
-Samuel Papa Kojo Amissah
+Samuel Papa Kojo Amissah Jnr
